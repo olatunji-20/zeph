@@ -16,7 +16,7 @@
         <i class="embrace">Your success is our success!</i>
         <h4>Embrace the Future Today</h4>
         <p>Don't be left behind; embrace the future of customer engagement with our AI-powered chatbots for businesses. Transform the way you interact with your customers, drive
-          revenue growth, and outshine your competition gfghhh ggjif bgfgcompetition and gfhhhwith the power of artificial intelligence.
+          revenue growth, and outshine your bdhd heve heve twgcompetition gfghhh ggjif bgfgcompetition and gfhhhwith the power of artificial intelligence.
         </p>
       </article>
     </div>
